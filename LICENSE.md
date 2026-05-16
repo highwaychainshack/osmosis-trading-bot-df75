@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom osmosis trading bot Executor | multi-chain-support + staking-integration, the #1 osmosis trading bot. Includes multi-chain-support and
 
 
 
